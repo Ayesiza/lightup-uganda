@@ -1,0 +1,1 @@
+This website is solery for LightUp Uganda  Development foundation
